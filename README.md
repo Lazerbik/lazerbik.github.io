@@ -1,1 +1,1 @@
-# priadka.com
+# lazerbik.github.io
